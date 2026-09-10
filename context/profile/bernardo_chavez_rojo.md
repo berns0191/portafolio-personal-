@@ -47,7 +47,7 @@ Bernardo Chávez Rojo es una persona orientada a la superación continua, la adr
 ---
 
 ## 📬 Contacto & Redes
-- **Correo Electrónico:** `bernardo.chavez.rojo@gmail.com`
+- **Correo Electrónico:** `bchr07@hotmail.com`
 - **WhatsApp:** `+52 55 2329 6222` ([wa.me/525523296222](https://wa.me/525523296222))
 - **Instagram:** [`@berny__cr`](https://www.instagram.com/berny__cr/)
 - **Ubicación:** México
