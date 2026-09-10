@@ -46,6 +46,13 @@ Bernardo Chávez Rojo es una persona orientada a la superación continua, la adr
 
 ---
 
+## 📬 Contacto & Redes
+- **Correo Electrónico:** `bernardo.chavez.rojo@gmail.com`
+- **Instagram:** [`@berny__cr`](https://www.instagram.com/berny__cr/)
+- **Ubicación:** México
+
+---
+
 ## 💡 Claves de Personalidad para Storytelling / UI
 - **Arquetipo:** Analítico, audaz, disciplinado y orientado a la acción (fusión entre rigor financiero y energía de deportes extremos).
 - **Tono de Comunicación:** Directo, elegante, seguro, innovador y enfocado en resultados.
